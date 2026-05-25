@@ -32,8 +32,7 @@
 📧 Email	contact@tanie.me
 📸 Instagram	@tanie.mp3
 💼 LinkedIn	@Tanisha-Lalwani
-🌀 Discord	@chinkichacha
-📧 Twitter @tanishaness22
+
 
 
 <h1 align="center">
