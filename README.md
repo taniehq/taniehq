@@ -4,7 +4,7 @@
 
 
   ## Hey, I’m Tanisha Lalwani </span><br>
-- Full stack developer, Been fooling around with AI, Web3, and cloud bits lately — because who doesn't want their portfolio to sound like a buzzword salad?</span><br>
+- Creative Developer: I like my sites standing out, do you?</span><br>
 - Got into tech out of curiosity, stayed because making stuff is addictive.</span><br><br>
 
 
