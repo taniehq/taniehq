@@ -29,9 +29,11 @@
 <img src="https://skillicons.dev/icons?i=figma,postman,notion,git,github" alt="Other Tools" style="margin-right:7px;" />
 
 ## 🌐 Socials:
-📧 Email	contact@tanie.me
+
+🌐tanie.me 📧 Email	contact@tanie.me
 📸 Instagram	@tanie.mp3
 💼 LinkedIn	@Tanisha-Lalwani
+
 
 
 
