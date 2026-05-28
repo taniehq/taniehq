@@ -30,7 +30,7 @@
 
 ## 🌐 Socials:
 
-🌐https://tanie.me 📧 Email	contact@tanie.me
+🌐https://tanie.me 📧 Email	tanielalwani@gmail.com
 📸 Instagram	@tanie.mp3
 💼 LinkedIn	@Tanisha-Lalwani
 
